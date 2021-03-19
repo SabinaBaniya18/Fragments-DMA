@@ -4,3 +4,6 @@
 
 ![close](https://user-images.githubusercontent.com/78713326/111768631-46f57a80-88d0-11eb-97cf-cf273d216b63.JPG)
 
+![homework1](https://user-images.githubusercontent.com/78713326/111768716-6391b280-88d0-11eb-9e28-58320bd45a9f.JPG)
+
+
